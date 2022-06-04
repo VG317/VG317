@@ -1,5 +1,5 @@
 - 👋 Hi, I’m VANJAM GANGA
-- 👀 I’m interested in WEB Designing, playing cricket,football.
+- 👀 I’m interested in WEB Designing, playing cricket,football, puzzle solving and reading books.
 - 🌱 I’m currently learning core java and python
 - 💞️ I’m looking to collaborate on cloud computing with microsoft.
 - 📫 Reach me through my email id vganga317@gmail.com and whatsapp no.6268933047
